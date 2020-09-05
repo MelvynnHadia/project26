@@ -1,0 +1,1 @@
+You're going to need an 8-inch nonstick skillet (like this one) for a 2-egg omelette or a 9-inch skillet for 3 eggs and pan and a stick of butter as well.
